@@ -1,6 +1,3 @@
-### Hi there 👋
-
-
 ## Hi there, I'm Amit Rai! 👋
 
 <a href="https://twitter.com/amitrai48">
